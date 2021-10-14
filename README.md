@@ -14,4 +14,4 @@
 
 ## Profile
 
-![Rose Profile](https://preview.redd.it/76zii85hsg851.png?width=1920&format=png&auto=webp&s=c54c4998e346d9a1e462cec979e9ef01cf5c27b6)
+![Rose Profile](https://img.wattpad.com/cover/180151793-256-k746429.jpg)
